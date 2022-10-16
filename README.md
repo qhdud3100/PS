@@ -1,4 +1,3 @@
-# PS
-problem solving
+# problem solving
 
 will be platinum rank soon. 
